@@ -1,0 +1,5 @@
+karuna
+karuna
+karuna
+niya
+:
